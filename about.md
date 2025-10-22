@@ -1,0 +1,1 @@
+Curious, empathetic, creative.
